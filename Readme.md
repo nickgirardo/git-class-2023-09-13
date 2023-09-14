@@ -2,4 +2,4 @@
 
 Hi my name is Nick
 
-And a fun fact about me is I have a bandaid on my forehead because I fell of my bike
+And a fun fact about me is i like elephants
